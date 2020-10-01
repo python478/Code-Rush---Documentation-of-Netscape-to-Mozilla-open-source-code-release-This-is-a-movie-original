@@ -1,0 +1,1 @@
+# Code-Rush---Documentation-of-Netscape-to-Mozilla-open-source-code-release-This-is-a-movie-original
